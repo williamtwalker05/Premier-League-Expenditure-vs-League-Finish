@@ -1,1 +1,1 @@
-Does a higher transfer expenditure lead to a better league finishes?
+Does a higher transfer expenditure lead to better league finishes?
